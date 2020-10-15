@@ -1,4 +1,4 @@
-# Hi There I'm Nuruddeen Salis 🖐
+# Hi There 🖐
 
 
 
