@@ -17,14 +17,6 @@ Nuruddeen The Light NG
 >Reading, learning, sharing with others!
 
 
-
-#### **Follow/join** 
->
->our dev community by clicking the dev berdge bellow
-
-:arrow_down: :arrow_down: :arrow_down: :arrow_down: :arrow_down: :arrow_down: :arrow_down: :arrow_down: :arrow_down:  
-
-[![Nuruddeen Salis's DEV Profile](https://d2fltix0v2e0sb.cloudfront.net/dev-badge.svg)](https://dev.to/thelightng)
     
 
 
